@@ -1,2 +1,2 @@
-# MatterJSBoilerPlate
-MatterJSBoilerPlate
+# THROW AWAY UR TRASH
+Seriously
